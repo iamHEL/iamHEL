@@ -5,8 +5,10 @@
 - Gamer 🎮
 - Homebrewer🍻
 
-ig: @vick_night 📸
-X: VictorTambalo ❌
+- ig: @vick_night 📸
+- X: VictorTambalo ❌
 
 - _**Voce pode entrar em contato comigo** 📫_
 - victorrodriguestambalo@gmail.com
+
+### _"Não deixe que a maldade cubra o seu sorriso"_ 
