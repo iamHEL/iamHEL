@@ -1,4 +1,4 @@
-### _Bem vindo ao meu perfil 🇧🇷🧠_
+### _Bem vindo ao meu perfil 🇧🇷🧠_ 
 
 - Meu nome é Victor Rodrigues Tambalo, 28 y.o 🍀
 - Sou Professor de Física, Quimica e Tecnologia e Robótica 👨‍🏫🤖
